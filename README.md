@@ -16,7 +16,7 @@ Let's See What Does Princess do 👇👰👄
 
 
 
-***This list is continuously updated.*** - You can take pull request and contribute.
+***This list is continuously updated.*** - You can take and watch it 😌.
 
 | Sr No | Name                                                         | Link                                |
 | ----- | ------------------------------------------------------------ | ----------------------------------- |
