@@ -2,7 +2,6 @@
 
 ### Here is What I am Currently Working On !!😍
 ![Hello](Hello.gif)
-## Viral ![](https://komarev.com/ghpvc/?username=viralvaghela)
 
 Let's See What Does Princess do 👇👰👄 
 
