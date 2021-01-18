@@ -13,6 +13,7 @@ Let's See What Does Princess do 👇👰👄
 - 👸 I am still studying 📘✏️ in 3rd Year 
 - 🍝 I love Noodles 😋😋
 - ❗❗  Pronouns : ... She / Her
+- 📫 How to reach me: shineprincess456@gmail.com
 - ❤️ Fun Fact ... I love to make Reels 
 
 
