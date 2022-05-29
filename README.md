@@ -10,7 +10,7 @@ Let's See What Does Princess do 👇👰👄
 - 😌 I am Currently Learning ... ReactJs Pretties : ( 😋 
 - ⚡ I am looking to Collaborate on ... ReactJs
 - 🌸 I am looking for help with ... Java 
-- 👸 I am still studying 📘✏️ in 3rd Year 
+- 👸 I am still studying 📘✏️ in Final Year
 - 🍝 I love Noodles 😋😋
 - ❗❗  Pronouns : ... She / Her
 - 📫 How to reach me: shineprincess456@gmail.com
