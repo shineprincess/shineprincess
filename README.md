@@ -12,7 +12,7 @@ Let's See What Does Princess do 👇👰👄
 - 👸 BE in IT 📘✏️ 
 - 🍝 I love Noodles 😋😋
 - ❗❗  Pronouns : ... She / Her
-- 📫 How to reach me: shineprincess456@gmail.com
+- 📫 How to reach me: priyankadhongde69@gmail.com
 - ❤️ Fun Fact ... I adore watching Netflix
 
 
